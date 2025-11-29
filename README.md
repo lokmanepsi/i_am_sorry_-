@@ -1,2 +1,3 @@
-# i_am_sorry_-
-my repo my rules
+Sometime, you need shut up.
+
+This time this is me, Siradj.
